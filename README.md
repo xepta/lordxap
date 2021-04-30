@@ -1,0 +1,2 @@
+# lordxap
+tugas kerja
